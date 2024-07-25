@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on meu relacionamento
 - 📫 How to reach me: andando
 - 😄 Pronouns: lá ele
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: por que não existe flor preta?
 
 <!---
 MuriloNascimentoTop/MuriloNascimentoTop is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
