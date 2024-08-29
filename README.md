@@ -4,3 +4,4 @@
 - Eu quero colaborar para que meus objetivos deem certo
 - Instagram muriloonascimento_
 - Sou torcedor do Barcelona, Visca el Barça!
+- Sou muito feliz ao lado da minha namorada, Anne Liz.
